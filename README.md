@@ -1,0 +1,2 @@
+# us-shadowrocket
+美区小火箭账号购买-美区已购shadowrocket账号-租用美区共享小火箭Shadowrocket账号-已购shadowrocket共享Apple ID-小火箭id账号共享
